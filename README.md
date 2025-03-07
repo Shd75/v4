@@ -3,6 +3,7 @@ https://youtube.com
 https://bing.com   
 https://freemovieswatch.cc
 https://facebook.com
+https://www.mathpapa.com/algebra-calculator.html
 
 
 ## Doge Unblocker
