@@ -4,6 +4,7 @@ https://bing.com
 https://freemovieswatch.cc
 https://facebook.com
 https://www.mathpapa.com/algebra-calculator.html
+https://chromewebstore.google.com/
 
 
 ## Doge Unblocker
