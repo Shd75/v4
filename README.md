@@ -7,7 +7,7 @@ https://www.mathpapa.com/algebra-calculator.html
 https://chromewebstore.google.com/
 https://7123.vercel.app
 https://uulanding.vercel.app
-https://bly.by
+https://ely.by
 
 
 ## Doge Unblocker
